@@ -1,4 +1,4 @@
-### _Hi there 👋, I'm Wang linke.
+### Hi there 👋, I'm Wang linke.
 
 I love to talk on trending ⚡ technology ⚡, stay hungry stay foolish. Connect with me here -
 
